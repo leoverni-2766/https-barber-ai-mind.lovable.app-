@@ -1,0 +1,1 @@
+# https-barber-ai-mind.lovable.app-
